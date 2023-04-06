@@ -4,6 +4,8 @@ I'm a student studying in class **11th** and passionate about learning new thing
 
 ### Pronouns: He/Him
 ### Age: 15-16yo
+### Grade: 11th
+### Stream: PCM
 ### Region: Goa, India
 
 ## Skills
