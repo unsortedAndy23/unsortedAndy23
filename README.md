@@ -1,6 +1,6 @@
 # Hi there! 👋
 
-I'm a student studying in class **11th** and passionate about learning new things in the field of software & electrics. I'm currently preparing for IIT-JEE examination and working on several projects aswell.
+I'm a student studying in class **11th** and passionate about learning new things in the field of software & electrics. Struggling in life and working on several projects aswell.
 
 ### Pronouns: He/Him
 ### Age: 15-16yo
